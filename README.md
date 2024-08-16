@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-- 🔭 I’m currently working as a Technical Product Sales Representative and want to change career into the I.T. industry
+- 🔭 I’m currently working as a Technical Product Sales Representative and Supervisor and am studying to change career into the I.T. industry
 - 🌱 I’m currently learning certificate IV in Cybersecurity, starting a Bachelor degree in 2025
 - 🤔 I’m looking for help with getting an entry level role as cybersecurity analyst or systems administrator
 
